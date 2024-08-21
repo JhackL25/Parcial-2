@@ -6,3 +6,6 @@
 ![image](https://github.com/user-attachments/assets/f40a0f03-8720-448d-a103-6cfe60a4cc40)
 
 ![image](https://github.com/user-attachments/assets/3faee289-a062-4b4c-912d-cd9ccaf63dfa)
+
+Ejercicio 5
+![image](https://github.com/user-attachments/assets/29f99780-84f2-4785-afae-38bfbfc73def)
